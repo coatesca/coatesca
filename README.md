@@ -1,8 +1,7 @@
-## Hi there 👋
-
+### Hi there 👋
 # I'm Claire
 
 - 🎓 I majored in Psychology at Western University
-- 😁 Interests: ...screenwriting, my dog Molly...
-- 📫 How to reach me: ...claireoatescalver@gmail.com
-- ⚡ Fun fact: ...
+- 🗺 I live in London, ON
+- 😁 My interests include... screenwriting, my dog Molly, memes, and anything animal-related
+- 📫 You can reach me at...claireoatescalver@gmail.com
